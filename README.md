@@ -8,4 +8,6 @@
 
 💞️ I’m looking to collaborate on backend-heavy web projects
 
-📫 How to reach me: LinkedIn
+📫 How to reach me: www.linkedin.com/in/bhargav-sai-bhartu-a2450631b
+
+
